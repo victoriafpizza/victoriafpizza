@@ -1,4 +1,4 @@
-### Olá! Eu sou a Victoria Franceschini ❤️
+### Olá, Eu sou a Victoria Franceschini ❤️
   ##
 <div>
   <a href="https://beacons.ai/victoriafpizza">
